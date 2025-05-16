@@ -1,4 +1,4 @@
-# **LoopCV Promo Codes – 30% Off Discount (2025)**  
+# **LoopCV Promo Codes – 90% Off Discount (2025)**  
 
 Get **30% off LoopCV** with our exclusive promo codes! Automate your job search, apply to hundreds of jobs in minutes, and land interviews faster— limited-time 2025 deal.  
 ---  
