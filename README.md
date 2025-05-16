@@ -4,7 +4,11 @@ Get **30% off LoopCV** with our exclusive promo codes! Automate your job search,
 ---  
 Right now, you can take advantage of exclusive [LoopCV.ai promo codes](https://loopcv.pro/?via=abdul) for 2025 to score up to 50% off your purchase.
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://loopcv.pro/?via=abdul)
+## [Use This Link To Get 90% OFF](https://loopcv.pro/?via=abdul) .
+
+
+[![Discount button](https://github.com/user-attachments/assets/dd346f5f-ca39-4f41-8cdd-1be90be3fe6e)](https://loopcv.pro/?via=abdul)
+[![Discount button](https://github.com/user-attachments/assets/99d75cf4-358b-4ea4-98bb-f054e399bd8d)](https://loopcv.pro/?via=abdul)
 
 Job hunting is time-consuming, but **LoopCV** makes it effortless. This AI-powered tool **automates job applications**, scans thousands of listings, and submits your resume to the best matches—saving you hours of manual work.  
 
